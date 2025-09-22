@@ -1,1 +1,0 @@
-# Ayudya-Diah-Hapsari
